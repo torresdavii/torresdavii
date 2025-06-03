@@ -1,4 +1,4 @@
-## Olá! Eu sou o Davi Torres 🖐️More actions
+## Olá! Eu sou o Davi Torres 🖐️
 
 
 
